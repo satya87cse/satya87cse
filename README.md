@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Find me on https://www.linkedin.com/in/satyajit-paul-20992624/
 
 <!--
 **satya87cse/satya87cse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
